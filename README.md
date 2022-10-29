@@ -13,6 +13,7 @@
 - https://romperayo.bandcamp.com/track/insurgentes-carism-ticos-llegaron-los-burros
 - [Track 5](https://analogafrica.bandcamp.com/album/afro-beat-airways-west-african-shock-waves-ghana-togo-1972-1978)
 - https://palenquerecords.bandcamp.com/album/abelardo-carbono-y-su-tribu-champetua-burundanga
+- https://palenquerecords.bandcamp.com/album/abelardo-carbono-y-su-tribu-canibal-el-cucaracho-feat-eblis-alvarez-meridian-brothers
 
 ## Simon's picks
 
