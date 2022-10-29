@@ -14,6 +14,7 @@
 - [Track 5](https://analogafrica.bandcamp.com/album/afro-beat-airways-west-african-shock-waves-ghana-togo-1972-1978)
 - https://palenquerecords.bandcamp.com/album/abelardo-carbono-y-su-tribu-champetua-burundanga
 - https://palenquerecords.bandcamp.com/album/abelardo-carbono-y-su-tribu-canibal-el-cucaracho-feat-eblis-alvarez-meridian-brothers
+- https://romperayo.bandcamp.com/track/las-computadoras-tambi-n-somos-seres-humanos
 
 ## Simon's picks
 
